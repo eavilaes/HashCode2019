@@ -1,4 +1,7 @@
-Isabel Najarro @inajarrob
-Jose Ramon Lozano @JoserraLP
-Eric Avila @eavilaes
-Fran Nuñez
+Isabel Najarro (@inajarrob)
+
+José Ramón Lozano (@JoserraLP)
+
+Eric Ávila (@eavilaes)
+
+Francisco Núñez
